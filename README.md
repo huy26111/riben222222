@@ -24,4 +24,4 @@
 
 不论你是日本AV老粉，还是刚踏入这个领域的新手，成人羞羞免费都能带给你最舒适、最便捷的观影体验。马上收藏本站，享受属于你的2025年羞羞时光吧！
 
-<span style="display:none;">[Canonical link]  ( ）</span> 
+<span style="display:none;">[Canonical link]  ( https://github.com/huy26111/riben222222 ）</span> 
